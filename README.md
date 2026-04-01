@@ -44,4 +44,4 @@ Desarrollador apasionado por la **tecnología** y la **programación**, actualme
 📫 **¿Cómo contactarme?**
 * **LinkedIn:** [@joanpedraza](https://www.linkedin.com/#/#/)
 * **Email:** [ca754029@gmail.com](ca754029@gmail.com)
-* **WhatsApp:** [+34 603244621](+34 603244621)
+* **WhatsApp:** [+34 603244621](+34603244621)
